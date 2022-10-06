@@ -1,0 +1,1 @@
+<img src="/img/cap-wordie.png" alt="playhoenicka wordie wordie.cka">
